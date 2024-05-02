@@ -1,0 +1,1 @@
+During World War II, Russians used dogs strapped with explosives to blow up German tanks. They trained the dogs to associate the tanks with food and ended up destroying about 25 German tanks using this method
